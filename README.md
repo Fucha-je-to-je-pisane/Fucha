@@ -1,3 +1,0 @@
-# Fucha
-Fucha
-zxvcdzv
